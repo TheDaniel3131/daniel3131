@@ -1,2 +1,5 @@
 # daniel3131
-daniel3131.carrd.co // https://daniel3131.com/
+https://daniel3131.carrd.co // https://daniel3131.com/
+
+
+backup zip soon (no money to purchase, I created this like years ago)
